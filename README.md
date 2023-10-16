@@ -1,3 +1,3 @@
 BK
 poprawka bk
-opprawka lokalkna
+poprawka
