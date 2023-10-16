@@ -1,3 +1,2 @@
-BK
-poprawka bk
-poprawka
+lolol
+
